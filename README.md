@@ -94,3 +94,4 @@ h2. 版本历史
 
 官方频道：https://t.me/a645645654
 官方客服：@kexuejia3
+YOUTUBE：https://www.youtube.com/@Web3%E7%A7%91%E5%AD%A6%E5%AE%B6%E9%98%BF%E5%91%86
